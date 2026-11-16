@@ -20,4 +20,4 @@
 
 ### 📫 Як зі мною зв'язатися:
 * **GitHub:** [Feron8](https://github.com/Feron8)
-* **Telegram:** [Imadanq](https://t.me/Feron8)
+* **Telegram:** [Imadanq](https://t.me/Shnelapepewatafa)
